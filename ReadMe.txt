@@ -12,5 +12,6 @@
 # Please feel free to query & feedbacks.  
      Also, You can send message on facebook:https://www.facebook.com/gaurishankar.shah.507/
 					    Instagram:https://www.instagram.com/gaurishankar.shah.507/
+                                            Linkedin:https://www.linkedin.com/in/gauri-shankar-sah-38b127278/
 
 						Thank You !!!
